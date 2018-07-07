@@ -1,1 +1,0 @@
-# skseth.github.io
